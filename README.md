@@ -8,6 +8,7 @@ Postscript Notes by planetes00@gmail.com
 
 * If you can read Korean, my blog(https://blog.naver.com/francium_iodide/221284226836) will show you process of my minesweeper
 
+Thank you for read!
  ----------------------------
  _你知道天的定例麼、能使地歸在天的權下麼。_
  ----------------------------
