@@ -12,6 +12,5 @@ Postscript Notes by planetes00@gmail.com
 
 <img width="1233" alt="스크린샷 2019-04-11 오후 11 34 32" src="https://user-images.githubusercontent.com/47956439/56477470-dcb7dd80-64e0-11e9-8720-3eaae383a3cf.png">
 
-<img width="1211" src="https://namu.wiki/w/%ED%8C%8C%EC%9D%BC:Lutz_Sairofe.png">
 ----
 ### ♟️
